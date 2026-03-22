@@ -1,0 +1,1 @@
+# destinyogu.cp255.github.io
